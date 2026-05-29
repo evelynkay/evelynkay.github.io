@@ -27,3 +27,19 @@ I have great teamwork abilities.
 I'm very adaptable to who I'm working with and what I am working on.
 I have a high level of emotional intelligence and can explain them well.
 This also means I carry great communication.
+
+
+
+My Current Career Goals
+I want to maintain a great GPA.
+I want to work in STEM.
+Possibly be an electical engineer.
+
+
+Current Activites
+Currrently I compete in cross country, basketball, and track.
+I am striving to compete in a half marathon before January 1st, 2027.
+I attend church every sunday, and serve as a ministring sister to build my realtionships with like minded people.
+
+Certifications
+
