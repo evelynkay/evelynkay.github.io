@@ -15,7 +15,15 @@ My username is evelynkay
 
 
 
-Added a Skills section
-Technical skills
-Soft skills
+Technical Skills I carry
+I am good with digital collaboration.
+I know the basics of coding a website.
+As well as understanding the basics of cybersecurity.
+Understanding key concepts of electrical engineering.
 
+
+Soft Skills
+I have great teamwork abilities.
+I'm very adaptable to who I'm working with and what I am working on.
+I have a high level of emotional intelligence and can explain them well.
+This also means I carry great communication.
