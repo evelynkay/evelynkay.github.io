@@ -42,7 +42,8 @@ Currrently I compete in cross country, basketball, and track.
 I am striving to compete in a half marathon before January 1st, 2027.
 I attend church every sunday, and serve as a ministring sister to build my realtionships with like minded people.
 
-Projects
+Projects:
+
 For cybersecurity, we did a preoject about the diffrent networking positions of a loal cybersecurity company near me. We showed who worked for who, what each job did, and which jobs were most important. I enjoyed this project alot because I know someone who works for that company, in that excat position. it was really intresting for me to be able to beter understand what they do and who they work with. I showed my ability to use digital collaboration, my research abilities, and my cybersecurity knowledge. I learned most of what diffrent newtorking postions do and who they worked for. It was a challange because it was information that was very specific to that buisness so, it was hard to find imformation about it.
 
 In my ELA class this year we had a project to compare two possible career paths. We had to take into account earnings, daily tasks, requirments, and imagine how our future would look. We needed to say overal which job would better suit us. It was a super entertaining assignment that helped me better understand the future I want to have, and how to get there. I used skills like planning, reasearch, analysis, and financial literacy. I learned that diffrent jobs carry very diffrent enviroment. I did sturggle with finding the correcct information because it can vary so much.
