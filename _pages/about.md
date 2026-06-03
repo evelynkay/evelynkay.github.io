@@ -8,7 +8,7 @@ redirect_from:
 excerpt:
 ---
 
-"My name is Evelyn Higbee
+My name is Evelyn Higbee
 I'm a student at Richland High School using Github to create a profile.
 Skills include team work, problem solving, determination, and technical experience.
 Career goals include working in stem, and working in a team.
