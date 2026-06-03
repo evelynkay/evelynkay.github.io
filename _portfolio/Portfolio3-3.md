@@ -1,5 +1,5 @@
 ---
-title: "Portfolio item number 123"
+title: "Portfolio 1"
 excerpt: "Short description of portfolio item number 3"
 ---
 
